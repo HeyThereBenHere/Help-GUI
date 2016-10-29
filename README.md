@@ -19,7 +19,7 @@ btw (the antivirus detected bug) its been fixed on at other antivirus Like: Avas
 #For Help
 For Help Please send All to benmeitav@gmail.com
 
-skype:xxbgamerxx
+skype: xxbgamerxx
 
 website www.heytherebenhere.tk 
 
