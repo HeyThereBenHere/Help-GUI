@@ -33,4 +33,31 @@ who will copyright this Program and say this program is mine will get Claim
 :))
 
 
+#Menu Info
+1)Generate Password
+
+2)Create Folders Bot
+
+3)DOS.DDOS
+
+4)Access To Cmd
+
+5)Create fake virus
+
+6)Change Colors
+
+7)Credits
+
+8)User Options Computer Options
+
+9)Exit
+
+10)Update
+
+11)Secert
+
+12)Calculator
+
+13)Is The ip alive
+
 @Help-GUI 
