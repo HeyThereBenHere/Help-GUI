@@ -28,7 +28,7 @@ youtube https://www.youtube.com/channel/UCOHGFfLSKtVHDPawf1ZZL5g
 "All was made By Ben Meitav"
 do not post any video on this Program.
 but if you do want please contcat me at my gmail
-who will copy this Program and say its mine will get Claim
+who will copyright this Program and say this program is mine will get Claim
 
 :))
 
