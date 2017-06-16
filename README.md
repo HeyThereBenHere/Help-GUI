@@ -17,15 +17,8 @@ btw (the antivirus detected bug) its been fixed on at other antivirus Like: Avas
 
 ------------------------------------------------------------------------------------------------------------------------------------------
 #For Help
-For Help Please send All to benmeitav@gmail.com
 
-skype: xxbgamerxx
-
-website www.heytherebenhere.tk 
-
-youtube https://www.youtube.com/channel/UCOHGFfLSKtVHDPawf1ZZL5g
-
-"All was made By Ben Meitav"
+"All was made By Ben (M)"
 do not post any video on this Program.
 but if you do want please contcat me at my gmail
 who will copyright this Program and say this program is mine will get Claim
